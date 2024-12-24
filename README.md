@@ -1,4 +1,2 @@
-демо работа 
-
-https://github.com/user-attachments/assets/a817b2b4-e2fe-4114-85f9-fd7ffa9b497a
+демо работа https://drive.google.com/file/d/1x4dNvtJz2D3VeQXWHx_J6gT2uY3ZX28c/view?usp=sharing
 
